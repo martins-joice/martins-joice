@@ -1,16 +1,16 @@
-## Hi there 👋
+
+- EU ME CHAMO JÉSSICAAAAAAAA
+- SOU ALUNA DO PRIMEIRO ANO DO CURSO TÉCNICO EM INFORMÁTICA
+- GOSTO MUITOOOOO QUE ME CHAMEM DE JÉSSICA MESMO MEU NOME SENDO JOICE...💟💟💟💟💟💟💟💟💟💟💟💟💟💟💟
+- SOU LOIRA, AMO TAYLOR SWIFT E KPOP
+- SO LEMBRANDO QUE EU ODEIOOOOOOOO QUE ME CHAMEM DE JOICEEEE, MEU NOME É JÉSSICAAAAAAAAAAAA😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃😃
+- NAS HORAS VAGAS EU GOSTO DE LER, CANTAR NO BANHO E USAR O SHAMPOO COMO MICROFONE
+- ISSO TUDO FOI EU QUE ESCEVIIIIII, LOGO VOCÊ QUE ESTÁ LENDO É BOYCETA
+
+  ##
+<a href="https://clientes.cgmultimidia.com.br/transisaak/wp-content/uploads/2020/10/new-bus-1400x669.png" target="_blank">
+  <img src="https://clientes.cgmultimidia.com.br/transisaak/wp-content/uploads/2020/10/new-bus-1400x669.png" alt="Bus Image" width="600" />
+</a>
 
 
-**martins-joice/martins-joice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
+VRUMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM VRUMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMMM 
